@@ -4,3 +4,6 @@ Blake Shelton
 Stergile Simpson
 Kenny Chesney
 Miranda Lambert
+Brittany Spears
+Jason Derulo
+Lady Gaga
